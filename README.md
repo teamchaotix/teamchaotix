@@ -4,7 +4,7 @@
   
 
 
-<sub>if you ever see me sitting with a "silvonic" or "mephone4s" guys pls call the police idk them!</sub> 
+<sub>if you ever see me sitting with a "sonespio" or "mephone4s" guys pls call the police idk them!</sub> 
 
 ![](https://files.catbox.moe/ez8fk7.png)
 
